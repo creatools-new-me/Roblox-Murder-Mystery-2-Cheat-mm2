@@ -5,9 +5,8 @@
 
 ## **[📥Install Roblox MM2 Cheat](https://github.com/creatools-new-me/Roblox-Murder-Mystery-2-Cheat-mm2/edit/main/README.md#%EF%B8%8F-how-to-download-and-install-roblox-murder-mystery-2-cheat)**
 
----
 
-## 🖼️ **PREVIEW & OVERVIEW**
+## 🖼️ **PREVIEW & OVERVIEW - PC **
 
 <img width="1280" height="720" alt="234jpg" src="https://github.com/user-attachments/assets/4e1c4efa-08d6-4bb2-9ed9-32a215376258" />
 
